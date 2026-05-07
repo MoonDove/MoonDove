@@ -23,7 +23,6 @@ _"We all walk our own paths. Though it may be lonely, as long as we keep moving 
 6. Trailblazer would leave Dan Heng for Firefly (as they should) which means Renheng canon (oh did I already mention that?)<br />
 <p align="center"><b>Of course I'm just joking :) <strike>no I'm not</strike> so please don't hunt me with pitchforks.</b></p>
 <br />
-<br />
 <p align="center"><img width="400" height="234" alt="image" src="https://github.com/user-attachments/assets/5ae463a0-7b8f-4d89-9cf1-b3eb860efd70" /></p>
 
 <!--
