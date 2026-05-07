@@ -17,7 +17,7 @@ _"We all walk our own paths. Though it may be lonely, as long as we keep moving 
 1. Renheng canon<br />
 2. Sunday joining the Stellaron Hunters would have been character assassination + Sunday is already a member of the Astral Express family<br />
 3. Purelily is canon, White Lily Cookie will get revived and Shadow Fraud needs to get deleted from the game<br />
-4. Dottore is the worst character, not only in Genshin but in all of Gacha game history. He doesn't have a sad backstory and he deserved getting thrown out of the Akademia (what a loser
+4. Dottore is the worst character, not only in Genshin but in all of Gacha game history. He doesn't have a sad backstory and he deserved getting thrown out of the Akademia (what a loser)
 <br />
 5. Cyrene isn't waifubait<br />
 6. Trailblazer would leave Dan Heng for Firefly (as they should) which means Renheng canon (oh did I already mention that?)<br />
