@@ -1,5 +1,6 @@
 **EVERY DAY OF THE WEEK SHOULD BE SUNDAY**
 
+**DNI IF YOU'RE TRASH+D** (Transphobes, Racists, Ableists, Sexists, Homophobes + Dottore Fans)
 
 
 <!--
