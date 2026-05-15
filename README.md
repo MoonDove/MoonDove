@@ -15,7 +15,7 @@ _"We all walk our own paths. Though it may be lonely, as long as we keep moving 
 
 <h3 align="center">Favorite ships</h3>
 <br/>
-HSR: Renheng, Phaidei, Evanyao, Cerysilens, Kafstelle, Stelfly, Ciphlaea, Bronseele, Dahliaswan Robin x March Rappa and Sparkle (she's a lesbian dni Robhill shippers), Argenthill, open for most Sunday ships (my bi king)
+HSR: Renheng, Phaidei, Evanyao, Cerysilens, Kafstelle, Stelfly, Ciphlaea, Bronseele, Dahliaswan, Robin x March Rappa and Sparkle (she's a lesbian dni Robhill shippers), Argenthill, open for most Sunday ships (my bi king)
 <br/>
 <br/>
 Genshin: Kavetham, Neuvifuri, Xiaolumi, Lynlumi, Dainther, Knightlight, Eimiko, Yanfei x Yelan, Laufer, Clorivia, Sanbina, Ayaitto
