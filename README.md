@@ -7,3 +7,7 @@
 <p align="center">🗡️ <i>"Seeing you makes me feel much calmer"</i> 🍁 </p>
 <p align="center"><img width="800" height="485" alt="1000014631" src="https://github.com/user-attachments/assets/1c0f7d9c-b5df-4ef8-8b87-0d14c713d9ef" /></p>
 <p align="center"><sup>⬆️ homosexual activities 🏳️‍🌈</sup></p>
+<br /> 
+<br />
+<img width="640" height="360" alt="hated-trope-the-writers-were-cooking-and-then-messed-up-at-v0-e2wosypgnsrg1" src="https://github.com/user-attachments/assets/4545fa27-5828-4ea1-9716-70fe0b42a9a1" />
+<p align="center"><i>"What a relief... to finally tell you this...my one and only... precious..."</i></p>
