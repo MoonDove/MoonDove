@@ -4,9 +4,9 @@
 <br /> 
 <br />
 <br />
-<img width="640" height="360" alt="hated-trope-the-writers-were-cooking-and-then-messed-up-at-v0-e2wosypgnsrg1" src="https://github.com/user-attachments/assets/4545fa27-5828-4ea1-9716-70fe0b42a9a1" />
+<p align="center"><img width="640" height="360" alt="hated-trope-the-writers-were-cooking-and-then-messed-up-at-v0-e2wosypgnsrg1" src="https://github.com/user-attachments/assets/4545fa27-5828-4ea1-9716-70fe0b42a9a1" /></p>
 <p align="center"><i>"What a relief... to finally tell you this...my one and only... precious..."</i></p>
-<img width="640" height="360" alt="static-assets-upload3031969887506683852" src="https://github.com/user-attachments/assets/c655da25-3293-4c03-852b-47bb76a7c6ee" />
+<p align="center"><img width="640" height="360" alt="static-assets-upload3031969887506683852" src="https://github.com/user-attachments/assets/c655da25-3293-4c03-852b-47bb76a7c6ee" /></p>
 <br />
 <br />
 <br />
