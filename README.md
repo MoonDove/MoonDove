@@ -4,6 +4,6 @@
 <br />
 <br />
 <br />
-<p align="center">🗡️ <i>"Seeing you makes me feel much calmer"</i>🍁 </p>
+<p align="center">🗡️ <i>"Seeing you makes me feel much calmer"</i> 🍁 </p>
 <p align="center"><img width="800" height="485" alt="1000014631" src="https://github.com/user-attachments/assets/1c0f7d9c-b5df-4ef8-8b87-0d14c713d9ef" /></p>
 <p align="center"><sup>⬆️ homosexual activities 🏳️‍🌈</sup></p>
