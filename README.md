@@ -13,16 +13,18 @@ _"We all walk our own paths. Though it may be lonely, as long as we keep moving 
 
 <p align="center"><img width="400" height="402" alt="image" src="https://github.com/user-attachments/assets/7b26dde5-b503-481b-9b80-2b7a31e2b096" /></p>
 
-<h3 align="center">Some important facts</h3>
-1. Renheng canon<br />
-2. Sunday joining the Stellaron Hunters would have been character assassination + Sunday is already a member of the Astral Express family<br />
-3. Purelily is canon, White Lily Cookie will get revived and Shadow Fraud needs to get deleted from the game<br />
-4. Dottore is the worst character, not only in Genshin but in all of Gacha game history. He doesn't have a sad backstory and he deserved getting thrown out of the Akademia (what a loser)
+<h3 align="center">Favorite ships</h3>
+<br/>
+HSR: Renheng, Phaidei, Evanyao, Cerysilens, Kafstelle, Stelfly, Ciphlaea, Bronseele, Dahliaswan Robin x March Rappa and Sparkle (she's a lesbian dni Robhill shippers), Argenthill, open for most Sunday ships (my bi king)
+<br/>
+<br/>
+Genshin: Kavetham, Neuvifuri, Xiaolumi, Lynlumi, Dainther, Knightlight, Eimiko, Yanfei x Yelan, Laufer, Clorivia, Sanbina, Ayaitto
 <br />
-5. Cyrene isn't waifubait<br />
-6. Trailblazer would leave Dan Heng for Firefly (as they should) which means Renheng canon (oh did I already mention that?)<br />
-7. Neuvifuri canon<br />
-<p align="center"><b>Of course I'm just joking :) <strike>no I'm not</strike> so please don't hunt me with pitchforks.</b></p>
+<br/>
+CRK: Purelily, Hollysugar, Eldersalt, Shadow Milk x my fist into his face, Seamoon, Frilledpearl
+<br/>
+<br/>
+<p align="center">If you hate any of my ships and feel the need to bring it up, dni.</p>
 <br />
 <p align="center"><img width="400" height="234" alt="image" src="https://github.com/user-attachments/assets/5ae463a0-7b8f-4d89-9cf1-b3eb860efd70" /></p>
 
