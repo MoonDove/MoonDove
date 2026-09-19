@@ -6,7 +6,7 @@
 <p align="center">Best moment in HSR:</p>
 <p align="center"><img width="1720" height="1442" alt="IMG_20260920_005423" src="https://github.com/user-attachments/assets/46e20d8e-5abf-48a5-ac03-fe463eeda07f" /></p>
 <p align="center"><img width="2005" height="1265" alt="IMG_20260920_005404" src="https://github.com/user-attachments/assets/09b3c1b8-b9cd-4ca7-a1b6-65abf9cbf41e" /></p>
-
+<p align="center"><img width="2399" height="1293" alt="IMG_20260920_005527" src="https://github.com/user-attachments/assets/82239668-5d54-49ed-9d24-4380051d7d4a" /></p>
 
 </br>
 
