@@ -16,6 +16,7 @@
 <p align="center"><img width="1313" height="207" alt="IMG_2770_1" src="https://github.com/user-attachments/assets/175f2812-5009-47cf-8e51-3edd309903ad" /></p>
 <p align="center"><img width="800" height="485" alt="1000014631" src="https://github.com/user-attachments/assets/1c0f7d9c-b5df-4ef8-8b87-0d14c713d9ef" /></p>
 <p align="center"><img width="947" height="175" alt="IMG_20260920_002626" src="https://github.com/user-attachments/assets/65de680c-8d05-4fca-af6b-f19e58e56619" /></p>
-
+<p align="center"><img width="2299" height="1286" alt="Screenshot_20260601-064739_1" src="https://github.com/user-attachments/assets/d881af6e-d30f-465c-bc8d-2c81b85922f3" /></p>
+<p align="center">And what exactly were you to each other? 🤨🏳️‍🌈</p>
 
 
