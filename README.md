@@ -1,10 +1,3 @@
-<p align="center">☀️ <i>"We all walk our own paths. Though it may be lonely, as long as we keep moving forward, we won't forget each other."</i> 🪽</p>
-
-<img width="7680" height="3178" alt="image" src="https://github.com/user-attachments/assets/3737893e-5c81-4a59-90bc-f23c15867eb7" />
-<br /> 
-<br />
-<br />
-
 <p align="center">🍁🗡️Renheng screenshots to annoy the haters:</p>
 <p align="center"><img width="1109" height="544" alt="IMG_20260420_084916_1_1" src="https://github.com/user-attachments/assets/276e08d3-e10f-4df9-a3db-8a7b5b6e6ade" /></p>
 <p align="center"><img width="499" height="624" alt="20260325_073919" src="https://github.com/user-attachments/assets/88eef344-7fde-4b4a-a063-2fcd99034e5d" /></p>
@@ -21,5 +14,6 @@
 <p align="center">And what exactly were you to each other? 🤨🏳️‍🌈</p>
 <p align="center"><img width="1851" height="241" alt="Screenshot_2025-12-06-13-27-22-332_com HoYoverse hkrpgoversea_1" src="https://github.com/user-attachments/assets/e80d5af0-260d-4af8-a922-b928eef4697e" /></p>
 <p align="center"><img width="1876" height="241" alt="Screenshot_2025-12-06-13-29-19-987_com HoYoverse hkrpgoversea_1" src="https://github.com/user-attachments/assets/59c56835-b4f9-4e77-9d1d-5e043886c58e" /></p>
+<p align="center"><img width="2048" height="1561" alt="IMG_20260920_004057" src="https://github.com/user-attachments/assets/e48ca72e-a02f-4f22-b0d3-2ce6680948e2" /></p>
 
 
