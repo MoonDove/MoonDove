@@ -1,12 +1,14 @@
 <p align="center">☀️ <i>"We all walk our own paths. Though it may be lonely, as long as we keep moving forward, we won't forget each other."</i> 🪽</p>
 
-<p align="center"><img width="7680" height="3178" alt="image" src="https://github.com/user-attachments/assets/3737893e-5c81-4a59-90bc-f23c15867eb7" /></p>
+<img width="7680" height="3178" alt="image" src="https://github.com/user-attachments/assets/3737893e-5c81-4a59-90bc-f23c15867eb7" />
 <br /> 
 <br />
 <br />
 
 <p align="center">🍁🗡️Renheng screenshots to annoy the haters:</p>
 <p align="center"><img width="1109" height="544" alt="IMG_20260420_084916_1_1" src="https://github.com/user-attachments/assets/276e08d3-e10f-4df9-a3db-8a7b5b6e6ade" /></p>
+<p align="center"><img width="499" height="624" alt="20260325_073919" src="https://github.com/user-attachments/assets/88eef344-7fde-4b4a-a063-2fcd99034e5d" /></p>
+
 
 <br /> 
 <br />
