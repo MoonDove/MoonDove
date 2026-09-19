@@ -15,5 +15,6 @@
 <p align="center"><img width="1851" height="241" alt="Screenshot_2025-12-06-13-27-22-332_com HoYoverse hkrpgoversea_1" src="https://github.com/user-attachments/assets/e80d5af0-260d-4af8-a922-b928eef4697e" /></p>
 <p align="center"><img width="1876" height="241" alt="Screenshot_2025-12-06-13-29-19-987_com HoYoverse hkrpgoversea_1" src="https://github.com/user-attachments/assets/59c56835-b4f9-4e77-9d1d-5e043886c58e" /></p>
 <p align="center"><img width="2048" height="1561" alt="IMG_20260920_004057" src="https://github.com/user-attachments/assets/e48ca72e-a02f-4f22-b0d3-2ce6680948e2" /></p>
+<p align="center"><img width="1276" height="236" alt="IMG_20260920_000149" src="https://github.com/user-attachments/assets/4785dd83-19e2-4ce9-8651-28c78eb8585c" /></p>
 
 
